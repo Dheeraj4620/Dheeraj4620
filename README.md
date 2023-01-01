@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Dheeraj4620
-- 👀 I’m interested in I don't know bro,like really
+- 👋 Hey i'm Dheeraj
+- 👀 I’m interested in coding,partying,making money XD.
 - 🌱 I’m currently learning Computer Science Engineering
 - 💞️ I’m looking to collaborate on Mini projects maybe?
 - 📫 How to reach me Text me @darkxrover@gmail.com
